@@ -1,2 +1,0 @@
-# giacomoleto.it
-Portfolio
